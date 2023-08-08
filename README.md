@@ -1,0 +1,1 @@
+# avejis-gadazidvis-servisi
